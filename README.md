@@ -11,7 +11,7 @@ PRETTY SKIN :
 COOL SKIN : 
 
 [face2facewedxnce](https://github.com/face2facewedxnce) [YUFF1E](https://github.com/YUFF1E) [Snowe-amy](https://github.com/Snowe-amy) [puppkonos](https://github.com/puppkonos) [bloodpopzt](https://github.com/bloodpopzt) [deslusia](https://github.com/deslusiaI) [r3dhawk](https://github.com/r3dhawk) [OLD-D0LL](https://github.com/OLD-D0LL)
-[callmeins](https://github.com/callmeins)
+[callmeins](https://github.com/callmeins) [frwailed](https://github.com/frwailed)
   <div>
   CUTIES SKIN : 
 
